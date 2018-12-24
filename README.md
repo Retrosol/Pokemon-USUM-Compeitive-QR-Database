@@ -1,3 +1,10 @@
+Pokémon Ultra Sun/ Ultra Moon Competitive QR Code Database
+
+Introduction
+
+I MENTION MY DISCORD SERVER MANY TIMES IN THIS README SO HERE IS MY SERVER
+https://discord.gg/QsrxTvt
+
 Hey Everybody kicking it Retro and I am Retrosol. I do Past Generations Pokemon Content, and Various 8 Bit/ 16 Bit Video game content.
 
 TO BE CLEAR THIS IS A SMOGON COMPETITIVE Ultra Sun and Ultra Moon DATABASE THIS means you will not find NON-COMPETITIVE Event Pokemon here. You may Find Competitive EVENT POKEMON WITH COMPETITIVE MOVESETS.
