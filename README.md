@@ -1,4 +1,4 @@
-Pokémon Ultra Sun/ Ultra Moon Competitive QR Code Database
+**Pokémon Ultra Sun/ Ultra Moon Competitive QR Code Database**
 
 Introduction
 
